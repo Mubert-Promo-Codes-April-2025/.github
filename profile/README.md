@@ -1,10 +1,10 @@
-# Mubert Promo Codes 2025: Save Up to 30% Off on AI Music Subscriptions
+# Mubert Promo Codes 2025: Save Up to 90% Off on AI Music Subscriptions
 If you're looking for **verified Mubert promo codes** to save on AI-generated music subscriptions, you're in luck! **Dealspotr** has curated the best **Mubert discount codes** for **April 2025**, including **30% off** on upgrade plans, monthly subscriptions, and business plans.  
 <a href="https://mubert.com/render/pricing?via=30OFF">
   <img src="https://github.com/user-attachments/assets/09f62a0e-4126-421a-ac4e-00c289a9206d" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
 </a>
 
-## [Use This Link To Get 30% OFF](https://mubert.com/render/pricing?via=30OFF)
+## [Use This Link To Get 90% OFF](https://mubert.com/render/pricing?via=30OFF)
 In this **detailed guide**, we’ll cover:  
 ✅ **Best Mubert promo codes for April 2025**  
 ✅ **How to use Mubert coupons for maximum savings**  
